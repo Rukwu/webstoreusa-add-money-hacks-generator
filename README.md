@@ -1,2 +1,5 @@
-# webstoreusa-add-money-hacks-generator
-Webstoreusa.net add unlimited money Hacks generator 2022 version
+# Webstoreusa.net add unlimited money Hacks generator 2022 version
+
+Webstoreusa.net add unlimited money Hacks generator 2022 version - Have at least one therapist on your team. There is no healing potion in the game, so you must use a character with healing spells to restore your character's health. Your best choice is to use one role, which can cure three party members at a time, but even if they can only cure one person at a time, it is still a major improvement for your army. Use delayed cheating to speed up the training of Party members. This is exactly the same way as speeding up endurance recovery, except that it returns to normal part of the time. Return to the main camp, gather your soldiers, and then return to the date and time settings to restore your time to normal. Now back in the game, trained soldiers will still be trained. Get more honor gems (blue gemstones) by connecting to Facebook. You can win a lot in battle, but if you really want to load, you have to go to Facebook and find other people playing the game. If you have friends on your friends list, you and them can send honor stones to each other every day. webstoreusa hacks today
+
+<a href="https://yintamod.xyz/webstoreusa/">check now</a>
